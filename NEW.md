@@ -1,1 +1,0 @@
-Pirog eto obman
